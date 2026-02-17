@@ -1,4 +1,4 @@
-# Hi, I'm Moe 👋
+# I'm Moe 👋
 
 📍 **Houston|London|Istanbul|Riyadh** | 🚀 **Building 10 Projects with AI Agents** | 🌐 **[10xbuilder.ai](https://10xbuilder.ai)**
 
